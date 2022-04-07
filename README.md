@@ -2,7 +2,7 @@
 My adventure in gardening
 - Papaya plant died slowly - root rot was the cause
 - Bodhdi plant grows weakly - what is the problem?
-- How to make hydrogen peroxide?
+- How to make hydrogen peroxide?  DON'T!  It's very explosive!
 - SUMMARY: 
 - Mix 1 tablespoon of baking soda with a pinch of salt and put some of this mixture on your toothbrush. Alternatively, you can add it to your regular toothpaste too.
 - If you’re looking to get rid of stains and tartar buildup from your teeth, simply rub the white part of the peel directly over your teeth for 2 to 3 minutes.
